@@ -1,1 +1,1 @@
-# shaugrin.github.i
+# shaugrin.github.io
